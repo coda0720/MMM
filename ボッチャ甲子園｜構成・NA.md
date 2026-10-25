@@ -1,4 +1,3 @@
-[ボッチャ甲子園_前編構成案.md](https://github.com/user-attachments/files/33922354/_.md)# ボッチャ甲子園　前編構成案
 
 ---
 
